@@ -1,4 +1,4 @@
-# 
+# خفيف new token sniper bot قوالب لـ Mac OS | مفتوح المصدر new token sniper bot قوالب لـ PC Windows. مع توقيع المعاملات و إدارة الهامش — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
